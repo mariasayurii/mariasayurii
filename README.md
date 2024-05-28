@@ -1,16 +1,14 @@
-## Hi there 👋
 
-<!--
-**mariasayurii/mariasayurii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ 
+oii, bem vindos a minha vida ✨✨ 🧿 ☯︎
 
-Here are some ideas to get you started:
+me chamo maria eduarda 
+tenho 17 anos!! 🍄
+estou no terceiro ano 3️⃣
+quero fazer faculdade de gastronomia 🧑🏻‍🍳 🦀
+gosto muito de estar ao ar livre e com pessoas que eu gosto 🪴 🪴 🪴
+faço aniversario dia 22.09 🤍🤍🤍
+ meu cantor favorito é o mc hariel e os 4️⃣Ⓜ️
+minha comida preferida é macarrão com carne moída 🍝
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+espero que tenham gostado, xoxo 💋💋💋
